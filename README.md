@@ -3,4 +3,4 @@ Just another repository
 
 Hi world!
 
-Cristian here! I liked Hello Robin Ice Creams, specially salted caramel and lavanter flavours :) 
+Cristian here! I like Hello Robin Ice Creams, specially salted caramel and lavanter flavours :) 
